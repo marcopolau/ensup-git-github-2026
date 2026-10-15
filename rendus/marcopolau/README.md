@@ -6,9 +6,3 @@ Entree gratuite
 
 Inscription sur place
 
-
-
-
-
-ppp
-
