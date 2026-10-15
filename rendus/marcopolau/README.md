@@ -6,3 +6,5 @@ Entree gratuite
 
 Inscription sur place
 
+correction : Accueil des visiteurs à partir de 09h00
+
